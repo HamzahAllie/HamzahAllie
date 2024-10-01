@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @HamzahAllie
+- 👀 I’m interested in powerlifting and cars
+- 🌱 I’m currently learning computer science and cars
+- 📫 How to reach me? Reach me on instagram @hamzahlifts_
+- 😄 Pronouns: He/him
+- ⚡ Fun fact: I like to lift heavy weights.
